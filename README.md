@@ -24,4 +24,6 @@ Conclusion
 
 Accessing the correct Black Ops URL is the first step to a safe and effective marketplace experience.
 
-Update:  18.09.2025
+
+
+Update:  01 October
